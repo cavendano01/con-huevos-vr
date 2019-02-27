@@ -10,4 +10,6 @@
 - **Fábrica Toyota** [Link](https://www.youtube.com/watch?v=bvqDVjk56EI)
 - **Intro al Boxeo** [Link](https://www.youtube.com/watch?v=PcZfAx9zeI4)
 
+Puedes encontrarme en mis redes como @cavendano01
+Mi correo carlos@unplug.studio
 
