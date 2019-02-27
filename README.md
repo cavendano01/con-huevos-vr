@@ -10,6 +10,14 @@
 - **Fábrica Toyota** [Link](https://www.youtube.com/watch?v=bvqDVjk56EI)
 - **Intro al Boxeo** [Link](https://www.youtube.com/watch?v=PcZfAx9zeI4)
 
+# Experiencia Extras
+
+- **Entrenamiento NASA** [Link](https://www.youtube.com/watch?v=lil_I_-7aOM)
+- **Sobre los Cielos de Dubai** [Link](https://www.youtube.com/watch?v=AX4hWfyHr5g)
+
+
+
+
 Puedes encontrarme en mis redes como @cavendano01
 Mi correo carlos@unplug.studio
 
