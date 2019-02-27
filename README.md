@@ -18,6 +18,6 @@
 
 
 
-Puedes encontrarme en mis redes como @cavendano01
+Puedes encontrarme en mis redes como [@cavendano01](https://twitter.com/cavendano01) 
 Mi correo carlos@unplug.studio
 
