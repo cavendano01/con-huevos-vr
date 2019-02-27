@@ -19,5 +19,5 @@
 
 
 Puedes encontrarme en mis redes como [@cavendano01](https://twitter.com/cavendano01) 
-Mi correo carlos@unplug.studio
+Mi correo  [carlos@unplug.studio](mailto:carlos@unplug.studio)
 
